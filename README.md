@@ -214,4 +214,4 @@ Skulls of the Shogun is provided as the full free version, offering all features
 Download Skulls of the Shogun now and lead your samurai army to victory! Unleash your strategic prowess and enjoy the adventure today!
 
 ---
-**Last updated:** 2026-09-23 19:59:22 UTC
+**Last updated:** 2026-09-23 22:54:20 UTC
